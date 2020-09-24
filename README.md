@@ -1,1 +1,1 @@
-https://charles-rein.github.io/silent/. 
+http://silent-mind.ml/
